@@ -1,0 +1,1 @@
+skrypt wsadowy windows
